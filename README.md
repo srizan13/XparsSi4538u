@@ -1,8 +1,4 @@
-- 👋 Hi, I’m @XparsSi4538u
-- 👀 I’m interested in songs
-- 🌱 I’m currently learning japanese
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ! Xpars乛ɪᴄᴏɴɪᴄ#6172 my discord id
+Hi, I am Srizan
 
 
 <!---
